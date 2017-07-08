@@ -3,8 +3,11 @@
 
 原 知愛
 Tomochika Hara
+
 WonderPlanet Inc.
+
 Twitter: @zetta1985
+
 Github: thara
 
 ---
